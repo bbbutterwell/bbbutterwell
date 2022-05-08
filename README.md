@@ -1,5 +1,7 @@
 My name is not B.B. Butterwell.
 
+I am trying to make things up.
+
 To read something, try this : https://www.royalroad.com/fiction/53291/witches-knights-unicorn-fights
 
 or this : https://github.com/bbbutterwell/compendium
